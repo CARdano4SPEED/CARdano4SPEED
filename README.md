@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CARdano4SPEED
-- 👀 I’m interested in cars
+- 👀 First plat to earn car racing platform  on cardano.
 
 
 <!---
